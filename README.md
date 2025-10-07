@@ -1,0 +1,1 @@
+# Smartt-earning-platform
